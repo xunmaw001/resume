@@ -15,6 +15,8 @@
 ### 简历预览
 1.  [前端工程师3年经验vue方向](https://www.xunmaw.com/shop/detail/1627235080658042881)
 
+![1677053561213](https://user-images.githubusercontent.com/122970840/220576193-2efd8f0b-bb14-4508-9b7c-b6f3c2001736.jpg)
+
 
 #### 其他简历
 
